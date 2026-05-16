@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket module with updated Polymarket Module | custom-strategies + arbitrage-detection. Featuring custom-strategies and arbitrage-detection, it's the best
 
 
 
